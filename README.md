@@ -1,4 +1,4 @@
-# What if wereally are alone in the universe?
+# What if we really are alone in the universe?
 
 <img src="https://preview.redd.it/7lgjpitxqbq91.png?auto=webp&s=28d38b79c0cff7b53283e6f1266766dc9fea1059" width=600>
 
