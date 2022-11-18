@@ -8,6 +8,6 @@ Scientists and astronomers have been able to observe 46.1 billion light years, a
 the observable universe that astronomers are able to observe is 46.1 billion light years, which means what we are seeing now is what well see 46.1 billion years into the past. 46 billion years is a lot so I'm sure in that amount of time
 there has been change in those areas of the universe. 
 - A light year is how much distance you can travel at the speed of light in one year.
-- The universe is 13 billion years old
+- The universe is 13 billion years old.
 
 # source for image - https://www.reddit.com/r/outerwilds/comments/xp5rdy/the_centre_of_the_universe_art_made_by_midjourney/
